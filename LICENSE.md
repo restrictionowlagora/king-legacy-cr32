@@ -1,4 +1,4 @@
-
+Download Free king legacy Scripts rare for king legacy and experience the ultimate in gameplay enhancement with unlimited stamina and auto-collect. Designed for gamers who demand
 
 
 
